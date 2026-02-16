@@ -1,1 +1,1 @@
-# pafro.github.io
+Pafro Enterprises is a an experienced and specialized local company in Tanzania, its a shared company by Tanzanians, registered certificates of registration No.  185762327 , Business license No. BL01507102025 and the registration No.  185-  762-  327 . Pafro has an expert teams of  labors,  technicians  and engineers specialized into the followings
